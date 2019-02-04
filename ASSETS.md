@@ -11,11 +11,11 @@ Need: Voice of customers Solution: Film workers interaction with customers
               My friends Jerry, Thia, Sophie and Joe all gave me permission to use their voices as customers (see end of                      soundscape for their verbal permission)\
 
 Need: sound of coffee pouring Solution: find sound effect online (received)
-                Pouring Coffee Sound 	(https://soundcloud.com/voteprime/pouring-coffee) I received this sound from                           Soundcloud, off of the resources page that you gave us.\
+                Pouring Coffee Sound 	(https://soundcloud.com/voteprime/pouring-coffee) I received this sound from                           Soundcloud by the user Adam Gerard, off of the resources page that you gave us.\
 
 Need: Sound of cash register Solution: I recorded the sound of a cash register from the Hillman Coffee Cart \ 
 
-Need: Mystery Sound Soulution: I used the mystery sound to signify coffee beans being poured into an espresso machine in a                    section of my soundcloud\
+Need: Mystery Sound Soulution: I used the mystery sound to signify coffee beans being poured into an espresso machine in a                    section of my soundscape\
 
 Need: Background Music Solution: Background music (https://www.jamendo.com/track/1166943/coffee-break) I received this song                    called "Coffee Break (2014)" from the artist ANDREA TORTI under the CC-BY-NC-SA License.\
 
